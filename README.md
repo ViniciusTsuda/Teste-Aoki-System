@@ -1,3 +1,4 @@
+<img width="547" height="200" alt="image" src="https://github.com/user-attachments/assets/74f1139d-3406-49ba-9018-843ddaa65c2b" />
 
 **AOKI SYSTEM TESTE**
 
